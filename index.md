@@ -1,7 +1,10 @@
 ## Things I Learned Recently
 1. Don't be a perfectionist in writing joural article. 
+-Bulleted 
+1. Start writing immediately, once you have an idea. Don't wait until you read every piece of paper that is related to the subject. 
 
-2. Write as much as possible. The most straight forward way to write a lot of paper is to ***start*** writin a paper **now**. 
+
+2. Write as much as possible. The most straight forward way to write a lot of paper is to ***start*** writing a paper **now**. 
 
 
 
