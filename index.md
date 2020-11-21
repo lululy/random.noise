@@ -1,10 +1,11 @@
-## Things I Learned Recently
+## [Journal Article Writing]Things I Learned Recently
 1. Don't be a perfectionist in writing joural article. 
 
 - Start writing immediately, once you have an idea. Don't wait until you read every piece of paper that is related to the subject. 
 - Read literature depends on what you need to finish the paper. It is impossible to put every literature to a 8k words. 
 
 2. Write as much as possible. The most straight forward way to write a lot of paper is to ***start*** writing a paper **now**. 
+- You need to write every day to keep track on the project. Start a writing journal. 
 
 
 
