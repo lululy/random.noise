@@ -1,5 +1,8 @@
-## A new post
-Test
+## Things I Learned Recently
+1. Don't be a perfectionist in writing joural article. 
+
+2. Write as much as possible. The most straight forward way to write a lot of paper is to start writin a paper **Bold** now. 
+
 
 
 ## Welcome to GitHub Pages
