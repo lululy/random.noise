@@ -1,3 +1,6 @@
+## [Stay Strong]Things I Learned Recently
+Focus on what I can do, rather than how I feel. 
+
 ## [Journal Article Writing]Things I Learned Recently
 1. Don't be a perfectionist in writing joural article. 
 
