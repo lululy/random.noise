@@ -1,5 +1,6 @@
 ## [Stay Strong]Things I Learned Recently
-Focus on what I can do, rather than how I feel. 
+- Focus on what I can do, rather than how I feel. 
+- Focusing on negative feeling won't solve the problem and makes myself feel worse.
 
 ## [Journal Article Writing]Things I Learned Recently
 1. Don't be a perfectionist in writing joural article. 
